@@ -1,0 +1,1 @@
+# generated_chart_output_ipo
